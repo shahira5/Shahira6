@@ -1,8 +1,7 @@
 Facebook
-
 https://www.facebook.com/magicjar.bakery
-Blogspot
 
+Blogspot
 https://magicjarbakery.blogspot.com/2023/10/magic-jar-bakery-is-charming-family.html
 
 Mailchimp
